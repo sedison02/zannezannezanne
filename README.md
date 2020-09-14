@@ -6,5 +6,5 @@ _Hello, I am Lezanne from Dunman High School_
 1. Water polo
 1. Reading
 1. Sleeping
-
+and i like tinkerbell alot :D
 
